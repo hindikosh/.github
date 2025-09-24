@@ -1,0 +1,1 @@
+Hindikosh is a public domain repository of Hindi literature. Only public domain literature should be added. If you are not sure about the copyright status of the work or book, please do not add it here.
